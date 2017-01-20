@@ -1,6 +1,6 @@
 # TTOS0100
 
-![](https://i.ytimg.com/vi/Tv4gJexDQVw/maxresdefault.jpg)
+![](http://a5.files.biography.com/image/upload/c_fill,cs_srgb,dpr_1.0,g_face,h_300,q_80,w_300/MTIwNjA4NjM0MDM0NDIzMzA4.jpg)
 
 ## Alaotsikko
 
