@@ -4,6 +4,8 @@
 
 | SAMPAN LEFFAT | JULKAISUVUOSI |
 |---------------|--------------:|
+|Pulp Fiction | 1994 |
+|Snakes on a Plane | 2006 |
 
 ## Alaotsikko
 
